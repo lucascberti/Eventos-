@@ -25,5 +25,10 @@
 --> Se passei por conselho de ética?  
 --> Como os partidos vem declinando mas ainda conseguem manter estabilidade?  
 
+## Curso Deep Learning e Text-as-data (Felipe Lamarca - IESP/UERJ) - 12/11
+
+--> Diferença entre machine e deep-learning residindo no uso de redes neurais no último caso;  
+--> O objetivo é encontrar qual o peso que minimiza o erro na predição;  
+--> Treinar uma rede neural significa aprender os pesos que minimizam alguma função de erro; 
 
 
