@@ -62,52 +62,52 @@ Militares: Autonomia pela integracao de FHC. Elogio a lula?? Reconhecimento de "
 
 ### Réplicas e tréplicas
 
-Sarney --> Lula  
+**Sarney --> Lula**
 
 S: Abertura economica nao como ideologia, mas necessidade. Crítica aos militares. Tema ambiental abordado, trazendo programas criados.   
 L: Ótima tréplica. Economia como ideolofgia também. Estabilidade pela diplomacia? 
 
-FHC --> Bolsonaro
+**FHC --> Bolsonaro **
 
 F: Boa réplica. Citaram todos os temas, especialmente sobre TNP.  
 B: Média.
 
-Bolsonaro --> Lula  
+**Bolsonaro --> Lula**
 
 B: Ok.  
 L: Ruptura de paradigma da diplomacia, ótimo. Diplomacia da vergonha, ambiente, COVID-19. Mto bom.  
 
-Lula --> FHC   
- 
+**Lula --> FHC**
+
 L: Bom!! Autonomia, estabilidade regional. País falando com todos!!! Muito bom!   
 F: OMC - regras sejam usadas. Não respondeu diretamente.
 
-Militares --> Lula   
+**Militares --> Lula**
 
 M: Seg. e desenolvimento. Obras militares! Bom.  
 L: Meio estranho. critica à transamazonica, mas pesou.  
 
-Lula --> Militares   
+**Lula --> Militares**
 
 L: Obras   
 M: DITADURA? Não falavam isso. Apoio do povo, ok. Combate ao comunismo e economia desenvolvimentista.   
 
-Sarney --> Lula  
+**Sarney --> Lula**
 
 S: Ok.  
 L: Sem tréplica.  
 
-FHC --> Militares  
+**FHC --> Militares**
 
 F: Liberdades civis e abalo das instiruicoes democráticas, diálogo e insercao internacional de FHC e critica à política dos militares.  
 M: Esforcos para manter a seguranca nacional. Faltou falar "recvolucao". Soberania do país.  
 
-Bolsonaro --> Lula  
+**Bolsonaro --> Lula**
 
 B: Acordos. Mercosul-UE. Liberalizacao comercial. Bom aparte. Alianca com Washington é destaque.  
 L: Boa tréplica!  
 
-Militares --> Bolsonaro  
+**Militares --> Bolsonaro**
 
 M: Retomada do americanismo, crise do petróleo.  
 B: Boa tréplica. Criticando governos de esquerda, falando nos EUA serem a maior potencia. 
