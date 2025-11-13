@@ -128,7 +128,6 @@ B: Boa tréplica. Criticando governos de esquerda, falando nos EUA serem a maior
 - Bolsonaro: Crítica à cop30 e à midia. Brasil como uma das grandes economias do mundo.
 - FHC: Multilateralismo funciona. Financiamento climatico e trasnferencia de tecnlogia. Boa abordagem.
 
-
 ### Democracia e 8 de janeiro
 
 - Lula: Soberania inegociável? Crédito nas instituicoes, urnas e nao interferencia de fora! Amplo direito de defesa dos julgamentos.
@@ -137,9 +136,9 @@ B: Boa tréplica. Criticando governos de esquerda, falando nos EUA serem a maior
 - Militares: 8/1 como parte do que aconteceu no Brasil. Crítica à mídia. 8 de setembro? Péssimo. 
 - Bolsonaro: Emanam da vontade do povo. Julgamento por tentativa de golpe. Rebato o vandalismo feito por infiltrados e família tradicional. Falou de Deus no fim.
 
-Ninguem falou de "Estado Democrático de Direito"
-Lula poderia ter falado de terroristas.
-Grupo FHC com dificuldade de trazer a peb aos dias atuais.
+Ninguem falou de "Estado Democrático de Direito".  
+Lula poderia ter falado de terroristas.  
+Grupo FHC com dificuldade de trazer a peb aos dias atuais.  
 
 
 
