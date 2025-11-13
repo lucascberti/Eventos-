@@ -114,8 +114,8 @@ B: Boa tréplica. Criticando governos de esquerda, falando nos EUA serem a maior
 
 ### Tarifaço
 
-- FHC: Tarifaco como reacao às falas de Lula, falando sobre a moeda do dólar (reserva de mercado) - cade a defesa do país;
-- Lula: Medidas unilaterais, cadeias produtivas. Boa defesa do país;
+- FHC: Tarifaco como reacao às falas de Lula, falando sobre a moeda do dólar (reserva de mercado) - cade a defesa do país.
+- Lula: Medidas unilaterais, cadeias produtivas. Boa defesa do país.
 - Sarney/Collor: contrariedade ao americanismo ideologico, dialogar, mas tambem diversificar os parceiros econonicos. Falando do agro.
 - Bolsonaro: não entendi bem... melhorou depois. Diálogo e iinteresses brasileiros. Soberania?
 - Militares: não entendi bem (ruim).
@@ -129,12 +129,17 @@ B: Boa tréplica. Criticando governos de esquerda, falando nos EUA serem a maior
 - FHC: Multilateralismo funciona. Financiamento climatico e trasnferencia de tecnlogia. Boa abordagem.
 
 
-### 8 de janeiro
+### Democracia e 8 de janeiro
 
-- 
+- Lula: Soberania inegociável? Crédito nas instituicoes, urnas e nao interferencia de fora! Amplo direito de defesa dos julgamentos.
+- FHC: Defesa da democracia, FHC como exilado. Instituicoes como premissa e contra o extremismo. 
+- Sarney: Descredito do país apos o 8/1. Manter democracia como norte. Atos antidemocráticos.  
+- Militares: 8/1 como parte do que aconteceu no Brasil. Crítica à mídia. 8 de setembro? Péssimo. 
+- Bolsonaro: Emanam da vontade do povo. Julgamento por tentativa de golpe. Rebato o vandalismo feito por infiltrados e família tradicional. Falou de Deus no fim.
 
-
-
+Ninguem falou de "Estado Democrático de Direito"
+Lula poderia ter falado de terroristas.
+Grupo FHC com dificuldade de trazer a peb aos dias atuais.
 
 
 
