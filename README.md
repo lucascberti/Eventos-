@@ -112,6 +112,26 @@ L: Boa tréplica!
 M: Retomada do americanismo, crise do petróleo.  
 B: Boa tréplica. Criticando governos de esquerda, falando nos EUA serem a maior potencia. 
 
+### Tarifaço
+
+- FHC: Tarifaco como reacao às falas de Lula, falando sobre a moeda do dólar (reserva de mercado) - cade a defesa do país;
+- Lula: Medidas unilaterais, cadeias produtivas. Boa defesa do país;
+- Sarney/Collor: contrariedade ao americanismo ideologico, dialogar, mas tambem diversificar os parceiros econonicos. Falando do agro.
+- Bolsonaro: não entendi bem... melhorou depois. Diálogo e iinteresses brasileiros. Soberania?
+- Militares: não entendi bem (ruim).
+
+### COP30
+
+- Lula: Cop das atitudes, concretizar as metas! Muito boa abordagem do tema! Transicao energética citada e matriz energética.  
+- Militares: Meio-ambiente como defesa do sesenvolvimento e soberania.  
+- Sarney/Collor: Bom. Pioneirismo no assunto ambiental. Reuniao dos países amazonicos em 1988. Rio 92. Boa abordagem da Amazonia.
+- Bolsonaro: Crítica à cop30 e à midia. Brasil como uma das grandes economias do mundo.
+- FHC: Multilateralismo funciona. Financiamento climatico e trasnferencia de tecnlogia. Boa abordagem.
+
+
+### 8 de janeiro
+
+- 
 
 
 
