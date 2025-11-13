@@ -160,6 +160,9 @@ FHC: Autonomia pela participacao e credibilidade pela estbilidade. Sistema inter
 
 **LULA ganhou!**
 
+- 3 pts pra cada   
+- 1 pra participacao do grupo  
+
 
 
 
