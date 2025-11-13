@@ -138,5 +138,23 @@ Ninguem falou de "Estado Democrático de Direito".
 Lula poderia ter falado de terroristas.  
 Grupo FHC com dificuldade de trazer a peb aos dias atuais.  
 
+### Discursos finais 
+
+BOLSONARO: paz, contrariedade ao estabelecimento de regras universais. DH como protecao à dignidade, e nao disputa ideologica. Atracao de investimentos. Ok.  
+
+MILITARES: dicotomia leste-oeste. foco interno? desenvolvimento e soberania são inseparáveis. paulo freire como adversário. Bom.  
+
+LULA: Bom discurso. Ativa, altiva e soberana. Crescimento economico e regional. Crise climática, diálogo, multilateralismo como caminho para estabilidade global. Organismos internacionais. Transicao energetica. Escolha de PRINCIPIOS. Genero, genocidio em gaza. Intervencoes unilaterais. Cop30 e o TFFF. MUITO BOM!  
+
+SARNEY/COLLOR: Necessidade de uma PE responsável, multilateral, responsável. Critica ao isolamento e alinhamento automatico, sem preferencias ideologicas momentaneas. Brasil da autonomia pela participacao. Democracia e cooperacao. Valores da diplomacia. BOM!   
+
+FHC: Autonomia pela participacao e credibilidade pela estbilidade. Sistema internacional e não critica aos EUA e Europa - definidores das regras do jogo internacional. Mudanca de tatica de Lula. Ok. 
+
+### VOTOS
+
+
+
+
+
 
 
