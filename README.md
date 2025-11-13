@@ -152,7 +152,13 @@ FHC: Autonomia pela participacao e credibilidade pela estbilidade. Sistema inter
 
 ### VOTOS
 
+- Bolsonaro --> militares; ótimo voto.
+- Militares --> bolsonaro; bom voto.
+- Lula --> FHC; ótimo voto.
+- Sarney/Collor --> Lula; poderia ser no FHC, achei um pouco incoerente.
+- FHC --> Lula; bom voto.
 
+**LULA ganhou!**
 
 
 
