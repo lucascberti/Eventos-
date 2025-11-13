@@ -65,7 +65,7 @@ Militares: Autonomia pela integracao de FHC. Elogio a lula?? Reconhecimento de "
 S: Abertura economica nao como ideologia, mas necessidade. Crítica aos militares. Tema ambiental abordado, trazendo programas criados.   
 L: Ótima tréplica. Economia como ideolofgia também. Estabilidade pela diplomacia? 
 
-**FHC --> Bolsonaro **
+**FHC --> Bolsonaro**
 
 F: Boa réplica. Citaram todos os temas, especialmente sobre TNP.  
 B: Média.
