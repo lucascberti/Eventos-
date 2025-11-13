@@ -32,9 +32,7 @@
 --> Treinar uma rede neural significa aprender os pesos que minimizam alguma função de erro;
 
 ## Simulação Política Externa Brasileira - UNIRIO  
-### Avaliadores: André Coelho, Lucas Berti e Marina Franco.  
-
-GRUPOS  
+### Avaliadores: André Coelho, Lucas Berti e Marina Franco.    
 
 ### Discurso inicial:  
 
@@ -48,7 +46,7 @@ LULA: Defesa doi sistema multipolar. PE altiva e ativa, multilateral. Defesa da 
 
 BOLSONARO:   Liberdade, vida, fé - bom discurso. Democracia na América Latina? "Doutrinas globalistas nas RI". Cidadão de bem, ok. Tema dos EUA ok. SEGURANÇA!!! Soberania nacional? Faltou tempo.  
 
-### APARTES:
+### Apartes:
 
 Lula: Crítica ao Americanismo ideológico. Seguranca do regime como uma crítica. Bom aparte para Sarney e Collor tb. Ótimo aparte contra Bolsonaro e fala sobre os organismos multilaterais. Mto importante, ainda falaram sobre a PEB ativa e ALTIVA.  
 
