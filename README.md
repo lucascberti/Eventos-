@@ -163,6 +163,34 @@ FHC: Autonomia pela participacao e credibilidade pela estbilidade. Sistema inter
 - 3 pts pra cada   
 - 1 pra participacao do grupo  
 
+## Mesa Encerramento Seminário Discente IESP - 13/11  
+### Com Fabiano Santos, Josué Medeiros e Letícia Pinheiro  
+
+**Josué Medeiros**
+
+- Análise por grupo focal;
+- Gênero como diferença entre discursos políticos;
+- Polarizacao em 2026 esperada;
+- Mobilização da sociedade como um fator importante;
+
+**Letícia Pinheiro**
+
+- Crise do multilateralismo? 80 anos da ONU;
+- CSNU e organizacoes internacionais;
+- Dificuldade de formacao de arranjos/articulacao coletivos regionais;
+- Crime organizado transnacional e discurso de Trump (ideias de narcoterrorismo);
+- Protagonismo da PEB;
+
+**Fabiano Santos**
+
+- Determinantes da eleicao de Downs;
+- Uso do estado para distribuicao de renda!
+- Posicao do incumbente;
+- Eleitor, avesso ao risco!
+
+
+
+
 
 
 
